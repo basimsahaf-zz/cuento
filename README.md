@@ -6,4 +6,4 @@
 • Confront
 • Support
 • Oppose : 
-## All at one place!
+ All at one place!
